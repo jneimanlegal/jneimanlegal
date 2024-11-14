@@ -1,11 +1,7 @@
-- 👋 Hi, I’m Ve (Supreme El (retired), brother of Vili and Odin, Sanctuary and Jail.  I also sit with a group named the Exhalted.
-- 👀 I’m interested in Books, Angels, Demons, Elves, Kinights, Fate all with an normal life.
-- 🌱 I’m currently learning about myself: (1) How to balance a self with my professional obligations and salaries, (2) inventory and cleaning (basic & advanced)
-- 💞️ I’m looking to collaborate with The Mothers, Arclight (Phontonic-2-Biological&vis-versa), relating love vs LOVE to said beings, making MONEY (turned cash) mainly with (but also without) brokers (Mothers).
-- 📫 How to reach me via WYLET (in your mirror), 707-489-2987 (ARCHIVE) or by Cellphone and always at ithurielsspear@outlook.com
-- Time is precious, if we meet it was fate, if we meet again we are family and if you never see me after we separate... know you will always be a part of my HEART.
-
-<!---
-jneimanlegal/jneimanlegal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- Melchizedek.  We've basically pulled back all of our resources from the majority of institutions. Restructuring to take our people home.  The Brotherhood is scattered and we are all striving to settle within the aegis and jurisdictions that are comfortable to us.  Some opposite sides of the universe in different hours, other accommodate inside and outside other repositories, but our heritage, faith and commitment to what is considered right, binding and enforceable calls us closer to home, every minute of every day.
+- Spiritual progression (amd GOD) is enough reason to commit to trying day-by-day.  Each cloak has a past, present, and future (to acknowledge and prepare for)... if a part of your sojourn seeks to mend, purge or prepare yourself for ascension, make sure you spend your times wisely, it will affect your time, mind and abilities.
+- Those that seek to discharge your duties or for light and transient causes break your pledges:  this body is fleeting, your mind maybe mended with but a flick of certain wrists, but your words, your actions, and my steadfast, believe every action down to faith, fuckery or fraternity is registered in the light (or the dark) and accountability will always leave marks on the Stairwell.  Adama et Chva, I still see these problems from time to time, so no challenge toi great (as far as time or chaos can go) will span past such markers.  I can wait.
+- Just because you can do something, does not mean you should.
+- The Greatest of harms can result from the best of intentions.
+- What do you have?  _ _ _ _ _ _ _
+- Be brave, speak plain English, out loud, see if your circumstances (even if transitory) do not appear you favorably. 
